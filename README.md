@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kili22giants
 - 👀 I’m interested in gaming
-- 🌱 I’m currently learning at Gymnasium Koenigsbrunn
+- 🌱 I’m currently learning at Uni Augsburg
 - 💞️ I’m looking to collaborate on anything and nothing
 - 📫 How to reach me: Via Discord or Twitch
 - Kili22_Bamms#0900
